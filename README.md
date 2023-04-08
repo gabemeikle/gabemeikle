@@ -1,3 +1,5 @@
-## Hi, I'm Gabe Meikle. I work at [unknot.](https://unknot.xyz/)
+## Gabe Meikle wave
+I am CEO of [unknot.](https://unknot.xyz/)
+Email: gabe[at]unknot.xyz
 
 - - - -
